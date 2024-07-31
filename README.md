@@ -1,6 +1,6 @@
 ## **Boas-vindas** 🌷
 
-- 🍦 Eu sou uma estudante do Ensino Médio
+- 🍦  Eu sou uma estudante do Ensino Médio
 - ✨ Buscando sempre aprender!
 - 🎨 Espalhando amor e arte por ai
 - 💬 Sou muito comunicativa
